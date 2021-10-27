@@ -1,0 +1,10 @@
+- 👋 Hi, I’m krishnamoorthi M
+- 👀 I’m interested in Web development
+- 🌱 I’m currently learning Full stack Development
+- 💞️ I’m looking to collaborate on learning 
+ - 📫 How to reach me ...
+
+I hope you are having a perfect day.
+i'm ready to help my future Client to expand their Business/ Productivity towards success to achieve the Organisation mission.
+
+Now I'm looking for a secure position with an organisation with a stable environment that will lead to a long-lasting relationship.
